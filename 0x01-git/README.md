@@ -1,1 +1,1 @@
-Muminat is a queen
+Muminat
